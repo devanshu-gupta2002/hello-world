@@ -2,4 +2,4 @@
 
 Hola Amigos
 New here learning stuff
-give anime recommendations 
+Jujutsu Kaisen
